@@ -1,1 +1,1 @@
-# aozora.realms is made by Don Control's Ai
+# zack.ai your favorite ai assistant
